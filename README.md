@@ -1,0 +1,2 @@
+# premium-vermillion-001-cinnabar-vermillion-ink-pigmen
+Struggling to track cinnabar and vermillion pigment properties across your ink formulations? Most creators waste hours cross-referencing scattered sources instead of having one authoritative reference system.  The Cinnabar Vermillion Ink Pigment Guide is a pre-built Notion template that centralizes every essential detail about vermillion ink pigmen
